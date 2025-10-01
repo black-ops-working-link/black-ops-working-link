@@ -24,4 +24,6 @@ Conclusion
 
 Maintaining current knowledge of Black Ops working links is key to uninterrupted and secure marketplace access.
 
-Update:  Thursday 18 September 2025
+
+
+Update:  Wednesday 01 October 2025 link is back online and functioning
